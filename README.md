@@ -45,4 +45,6 @@ For those interested in accessing reliable vendors or joining the marketplace, v
 
 
 
-Update:  07/18/2025
+
+
+Update: The link is operational once more.
